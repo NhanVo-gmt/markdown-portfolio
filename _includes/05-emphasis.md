@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+**In terms of coding**, i must say that i am _dedicated_. I can work hard to __make my ends meet__. And also to be honest, i am a fanatic of _gaming industries_.
